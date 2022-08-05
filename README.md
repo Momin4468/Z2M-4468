@@ -1,5 +1,4 @@
 ## Hi there 👋
-## My GitHub profile is under Construction 😅 yet.
 ## I will be uploading all my works here very shortly. 
 ## Thanks for visiting.
 <!--
